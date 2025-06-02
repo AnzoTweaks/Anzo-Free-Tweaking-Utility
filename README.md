@@ -4,3 +4,4 @@ I am not responsible for any problems/Damages with your pc this may cause (this 
                          Please Read All warnings, popups etc... dont just blindly press buttons without reading.
 
 Tutorial: https://youtu.be/qwUG-RtFdh8?si=S-JwWTa6ZWA9NIiW
+Discord Server: https://dsc.gg/anzotweaks
